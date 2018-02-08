@@ -3,4 +3,4 @@
 Hi! I love hazelnuts. They are my favorite.
 I also highly enjoy salsa,chips, and gauacamole.
 
-I prder guacamole to salsa
+I prefer guacamole to salsa
